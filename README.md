@@ -1,4 +1,4 @@
-### Olá! Eu su Adilma Alves! ✌️
+### Olá! Eu sou Adilma Alves! ✌️
 
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/adilmaalves)
